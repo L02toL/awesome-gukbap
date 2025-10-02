@@ -11,7 +11,7 @@
 
 ### 서울
 
-#### [본 북촌가](https://naver.me/GwlnPVMg)
+#### [본 북촌가](https://naver.me/xyTGkP6V)
 - 위치: 서울특별시 종로구 북촌로 1
 - 규모: 1층, 최대 50명
 - 운영 시간
